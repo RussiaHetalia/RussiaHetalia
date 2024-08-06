@@ -9,7 +9,7 @@
 
 
 
-<table><tr><td> <b><i>BFI</i></b>: Im weird about meeting new people. I ususally remain <b>mostly silent</b> with people I do not know unless something I am passionate about comes up. I am <i>not</i> annoyed at you for being around me and my friends, I'm just a little strange. <img src="https://github.com/user-attachments/assets/7f5982ee-d1e1-4ff6-8f85-172efecf7acc"</img>
+<table><tr><td> <b><i>BFI</i></b>: Im weird about meeting new people. I ususally remain <b>mostly silent</b> with people I do not know unless something I am passionate about comes up. I am <i>not</i> annoyed at you for being around me and my friends, I'm just a little strange. <img src="https://pixels.crd.co/assets/images/gallery12/eaa07048.gif?v=99d3974e"</img>
   <br/><br/>
 <b><i>Dislikes</i></b>: Jokes about pedophelia, rape, sexual assault, incest. I find humor like this tastless and I just don't really like it. I feel the need to also state that I dont like <b>people who like incest.</b> <i>(You would be surprised the ammount of people I've encountered)</i> If any of these apply to you I'm probably just going to ignore you.<img src="https://pixels.crd.co/assets/images/gallery28/09a8d430.gif?v=99d3974e"</img>
 
@@ -23,8 +23,7 @@
   
  I Know some HTML and Javascript 
   
-![02B8C275-D2CD-49D8-98A1-64DF8835CD40](https://github.com/user-attachments/assets/c2dadaa6-0f02-45f2-8952-56384759ff8d)  Please check out <a href="https://ace-attorney.neocities.org/">My Neocities</a> to learn more about me!![02B8C275-D2CD-49D8-98A1-64DF8835CD40](https://github.com/user-attachments/assets/c2dadaa6-0f02-45f2-8952-56384759ff8d)
-
+![https://github.com/user-attachments/assets/c2dadaa6-0f02-45f2-8952-56384759ff8d](https://pixels.crd.co/assets/images/gallery11/7191b3a1.gif?v=99d3974e) Please check out <a href="https://ace-attorney.neocities.org/">My Neocities</a> to learn more about me!![https://github.com/user-attachments/assets/c2dadaa6-0f02-45f2-8952-56384759ff8d](https://pixels.crd.co/assets/images/gallery11/7191b3a1.gif?v=99d3974e)
 <br/><br/>
 ![B4D093BD-BD15-4921-B962-FD9B42B31485](https://github.com/user-attachments/assets/a35c6c9e-fa50-4bf6-9356-a635f2f84b07) 
 
