@@ -11,7 +11,7 @@
 
 <table><tr><td> <b><i>BYI</i></b>: Im weird about meeting new people. I ususally remain <b>mostly silent</b> with people I do not know unless something I am passionate about comes up. I am <i>not</i> annoyed at you for being around me and my friends, I'm just a little strange. <img src="https://pixels.crd.co/assets/images/gallery12/eaa07048.gif?v=99d3974e"</img>
   <br/><br/>
-<b><i>Dislikes</i></b>: Jokes about pedophelia, rape, sexual assault, incest. I find humor like this tastless and I just don't really like it. I feel the need to also state that I dont like <b>people who like incest.</b> <i>(You would be surprised the ammount of people I've encountered)</i> If any of these apply to you I'm probably just going to ignore you.<img src="https://pixels.crd.co/assets/images/gallery28/09a8d430.gif?v=99d3974e"</img>
+<b><i>Dislikes</i></b>: Jokes about pedophelia, rape, sexual assault, incest. I find humor like this tastless and I just don't really like it. I feel the need to also state that I dont like <b>people who like incest.</b> <i>(You would be surprised the amount of people I've encountered)</i> If any of these apply to you I'm probably just going to ignore you.<img src="https://pixels.crd.co/assets/images/gallery28/09a8d430.gif?v=99d3974e"</img>
 
 <br/><br/>
 <b><i>Interests</i></b>: Ace Attorney, Hetalia, Attack on Titan, Jujutsu Kaisen, Chainsaw Man, Infinity Train, Our Flag Means Death, Deadplate, Elevator Hitch, Law, Gaming, Art, Coding, Markiplier, Animal Crossing, Stardew Valley, CODMW2, The Sims... 
@@ -21,7 +21,7 @@
 
   I dont really use github, just made this for Ponytown
   
- I Know some HTML and Javascript 
+ I know some HTML and Javascript 
   
 ![https://github.com/user-attachments/assets/c2dadaa6-0f02-45f2-8952-56384759ff8d](https://pixels.crd.co/assets/images/gallery11/7191b3a1.gif?v=99d3974e) Please check out <a href="https://ace-attorney.neocities.org/">My Neocities</a> to learn more about me!![https://github.com/user-attachments/assets/c2dadaa6-0f02-45f2-8952-56384759ff8d](https://pixels.crd.co/assets/images/gallery11/7191b3a1.gif?v=99d3974e)
 <br/><br/>
