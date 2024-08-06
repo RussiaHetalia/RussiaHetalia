@@ -8,7 +8,7 @@
   ![54CE0782-D839-4875-8E40-F20540387584](https://github.com/user-attachments/assets/99e2597c-2a1c-4bb2-a063-5bd8908297b1)American | English and ASL (learning)![0CA7039D-27E7-4215-89AB-78B8C13D4BEA](https://github.com/user-attachments/assets/677abcfb-0d47-4045-b2f7-b1a511740b26)
 
 
-  ***BFI***: Im weird about meeting new people. I ususally remain **mostly silent** with people I do not know unless something I am passionate about comes up. I am *not* annoyed at you for being around me and my friends, I'm just a little strange. ![E4368F36-8549-4C31-ABD9-AEF1C4979C4B](https://github.com/user-attachments/assets/7f5982ee-d1e1-4ff6-8f85-172efecf7acc)
+<table><tr><td> <b><i>BFI</i></b>: Im weird about meeting new people. I ususally remain <b>mostly silent</b> with people I do not know unless something I am passionate about comes up. I am <i>not</i> annoyed at you for being around me and my friends, I'm just a little strange. <img src="https://github.com/user-attachments/assets/7f5982ee-d1e1-4ff6-8f85-172efecf7acc"</img></td></tr></table>
 
   
   I dont really use github, just made this for Ponytown
