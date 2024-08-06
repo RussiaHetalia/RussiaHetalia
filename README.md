@@ -1,10 +1,13 @@
 <div align="center">
 <h1> ☆Apollo☆ </h1>
   He/Him
+<br/><br/>
   
   ![20202B6E-9541-4E8F-ABE2-3737BBCC8DC7](https://github.com/user-attachments/assets/732768c8-5719-48db-a66b-9c0b1db8c94d)  18 - Trans Male  ![20202B6E-9541-4E8F-ABE2-3737BBCC8DC7](https://github.com/user-attachments/assets/732768c8-5719-48db-a66b-9c0b1db8c94d)
   
   ![54CE0782-D839-4875-8E40-F20540387584](https://github.com/user-attachments/assets/99e2597c-2a1c-4bb2-a063-5bd8908297b1)American | English and ASL (learning)
+
+  ***BFI***: Im weird about meeting new people. I ususally remain **mostly silent** with people I do not know unless something I am passionate about comes up. I am *not* annoyed at you being around me and my friends, I'm just a little strange.
   
   I dont really use github, just made this for Ponytown
   
