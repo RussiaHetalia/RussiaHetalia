@@ -18,9 +18,6 @@
 ![02B8C275-D2CD-49D8-98A1-64DF8835CD40](https://github.com/user-attachments/assets/c2dadaa6-0f02-45f2-8952-56384759ff8d)  Please check out <a href="https://ace-attorney.neocities.org/">My Neocities</a> to learn more about me!![02B8C275-D2CD-49D8-98A1-64DF8835CD40](https://github.com/user-attachments/assets/c2dadaa6-0f02-45f2-8952-56384759ff8d)
 
 
-<href a="https://github.com/PrussiaHetalia">![52D104FD-F496-421C-B832-606E85DF38A9](https://github.com/user-attachments/assets/a9f9ec2e-3d48-4fd0-9715-2d9e0c16d658) </a> click them
-
-
 <!--
 **RussiaHetalia/RussiaHetalia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
