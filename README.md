@@ -9,7 +9,7 @@
 
 
 
-<table><tr><td> <b><i>BFI</i></b>: Im weird about meeting new people. I ususally remain <b>mostly silent</b> with people I do not know unless something I am passionate about comes up. I am <i>not</i> annoyed at you for being around me and my friends, I'm just a little strange. <img src="https://pixels.crd.co/assets/images/gallery12/eaa07048.gif?v=99d3974e"</img>
+<table><tr><td> <b><i>BYI</i></b>: Im weird about meeting new people. I ususally remain <b>mostly silent</b> with people I do not know unless something I am passionate about comes up. I am <i>not</i> annoyed at you for being around me and my friends, I'm just a little strange. <img src="https://pixels.crd.co/assets/images/gallery12/eaa07048.gif?v=99d3974e"</img>
   <br/><br/>
 <b><i>Dislikes</i></b>: Jokes about pedophelia, rape, sexual assault, incest. I find humor like this tastless and I just don't really like it. I feel the need to also state that I dont like <b>people who like incest.</b> <i>(You would be surprised the ammount of people I've encountered)</i> If any of these apply to you I'm probably just going to ignore you.<img src="https://pixels.crd.co/assets/images/gallery28/09a8d430.gif?v=99d3974e"</img>
 
