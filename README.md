@@ -22,6 +22,8 @@
   I dont really use github, just made this for Ponytown
   
  I know some HTML and Javascript 
+
+ Check out my Youtube for occasional hetalia animations like this one https://youtu.be/a_-QxWycBTQ?si=CQ2w_xrCiq4kycK6
   
 ![https://github.com/user-attachments/assets/c2dadaa6-0f02-45f2-8952-56384759ff8d](https://pixels.crd.co/assets/images/gallery11/7191b3a1.gif?v=99d3974e) Please check out <a href="https://ace-attorney.neocities.org/">My Neocities</a> to learn more about me!![https://github.com/user-attachments/assets/c2dadaa6-0f02-45f2-8952-56384759ff8d](https://pixels.crd.co/assets/images/gallery11/7191b3a1.gif?v=99d3974e)
 <br/><br/>
