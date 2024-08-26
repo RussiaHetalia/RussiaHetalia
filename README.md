@@ -19,7 +19,7 @@
 
 </td></tr></table>
 
-  I dont really use github, just made this for Ponytown
+I also have a <a href="https://maylor.straw.page/">Strawpage</a> that you can check out
   
  I know some HTML and Javascript 
 
