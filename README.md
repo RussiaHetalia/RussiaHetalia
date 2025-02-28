@@ -27,7 +27,5 @@ I also have a <a href="https://maylor.straw.page/">Strawpage</a> that you can ch
   
 ![https://github.com/user-attachments/assets/c2dadaa6-0f02-45f2-8952-56384759ff8d](https://pixels.crd.co/assets/images/gallery11/7191b3a1.gif?v=99d3974e) Please check out <a href="https://ace-attorney.neocities.org/">My Neocities</a> to learn more about me!![https://github.com/user-attachments/assets/c2dadaa6-0f02-45f2-8952-56384759ff8d](https://pixels.crd.co/assets/images/gallery11/7191b3a1.gif?v=99d3974e)
 <br/><br/>
-![B4D093BD-BD15-4921-B962-FD9B42B31485](https://github.com/user-attachments/assets/a35c6c9e-fa50-4bf6-9356-a635f2f84b07) 
 
-[<img src="https://github.com/user-attachments/assets/36909c4a-042e-4b68-93ba-ef7b3419e708">](https://github.com/PrussiaHetalia)
 
